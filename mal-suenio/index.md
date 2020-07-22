@@ -8,4 +8,5 @@ solo me quedaron recuerdos vagos de esos años,
 pero seguía siendo Pedrogas,
 por lo que todo estaba bien,
 pero por alguna razón extraña me llamaban Enmanuel,
-quiero ver como solucionar mi vida
+quiero ver como solucionar mi vida,
+pero primero tengo que olvidarla a ella fok :(
