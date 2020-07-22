@@ -1,0 +1,1 @@
+tenia parcial a las 7:00 am me quede dormido hasta como las 6:45 y sali lo mas pronto a la U, habia trabazon (que raro en El Salvador)XD llegue a las 7:30 entrando a la magna me vio la catedratica y me dijo "ahi viene cuando quiera".XD desde ahi intento llegar hasta 5 min antes a cada evaluación.
