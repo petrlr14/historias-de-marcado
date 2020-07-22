@@ -13,4 +13,4 @@
 - [Pedro Gómez](https://github.com/petrlr14) -[Mal sueño](mal-suenio/index.md)-
 - [Ignacio Martínez](https://github.com/RIMP-19) -[The Black Sky Cat](black-sky-cat/index.md)-
 - [Jaime Serrano](https://github.com/JaimeSerrano15) -[Buenos días](mal-suenio/story1)-
-- [Jaime Serrano](https://github.com/JaimeSerrano15) -[Buenos días](mal-suenio/story1.md)-
+- [Carlos Cortez](https://github.com/petrlr14) -[Buen Sueño](buen-suenio/index.md)-
