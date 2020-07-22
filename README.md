@@ -17,3 +17,4 @@
 - [Pedro Gómez](https://github.com/batarse1) -[Mal sueño Index modificación](mal-suenio/index.md)-
 - [Fernando González](https://github.com/batarse1) -[Mal sueño, Index modificación](mal-suenio/index.md)-
 - [Oscar Orellana](https://github.com/00252819) -[Mal sueño](mal-suenio/seFue.md)-
+- [Daniela Huezo](https://github.com/irenehl) -[tengo hambre](tengo hambre/tengoHambre.md)-
