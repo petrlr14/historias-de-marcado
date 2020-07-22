@@ -10,4 +10,4 @@
 ## Colaboradores
 
 - [Pedro Gómez](https://github.com/petrlr14) -[Mal sueño](mal-suenio/index.md)-
-- [Jaime Serrano](https://github.com/JaimeSerrano15) -[Buenos días](mal-suenio/story1)-
+- [Jaime Serrano](https://github.com/JaimeSerrano15) -[Buenos días](mal-suenio/story1.md)-
