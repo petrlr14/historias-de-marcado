@@ -10,3 +10,5 @@ por lo que todo estaba bien,
 pero por alguna razón extraña me llamaban Enmanuel,
 quiero ver como solucionar mi vida,
 pero primero tengo que olvidarla a ella fok :(
+Pero ¿Cómo olvidarla a ella? ¿Cómo seguir adelante?
+Parece ser que la guerra enloquece al hombre...
