@@ -9,3 +9,4 @@
 ## Colaboradores
 
 - [Pedro Gómez](https://github.com/petrlr14) -[Mal sueño](mal-suenio/index.md)-
+- [Carlos Cortez](https://github.com/petrlr14) -[Buen Sueño](buen-suenio/index.md)-
